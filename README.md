@@ -1,0 +1,5 @@
+- 👋 Hi, I'm JawerNava
+- 👀 I’m interested in to learn a lot technologies
+- 🌱 I'm currently learning about of Cucumber framework
+- 🌱 I'm looking to collaborate on many projects very important
+- 📫 You can to contact to me leaving a comment
